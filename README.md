@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @animfix
+- 👀 I’m interested in c++, java & music
+- 🌱 I’m currently smoking weed in my challenger srt 2016
+- 💞️ I’m looking to collaborate on @dollarcreator or @esoterick
+- 📫 How to reach me: Discord - Tracy#1779, VK - https://vk.com/dollarcreator, Telegram - @phillip015
